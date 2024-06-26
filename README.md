@@ -13,7 +13,7 @@
 
 - 💬 Ask me about **HTML ,Bootstrap ,CSS ,JS and Java**
 
-- 📫 How to reach me **pradoshmohanty034@gmail.com**
+- 📫 How to reach me **pradoshmohantyjob@gmail.com**
 
 - ⚡ Fun fact **I am Funny😁**
 
